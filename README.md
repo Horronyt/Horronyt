@@ -1,6 +1,6 @@
 - Currently studying hard in Russia, Moscow 🌆🏭🇷🇺
 - Grinding to become a Golang-Developer 💻
-- Intrested in Web3 🕷️🌎
+- Interested in Web3 🕷️🌎
 - You can find me in Telegram to communicate using @horronyt 🦊
 
 <!---
